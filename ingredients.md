@@ -1,3 +1,4 @@
+Let's begin!
 Ingredients for Roasted Air Fryer Chickpeas:
 * 1 can of chickpeas
 * 1/2 tablespoon of oil
@@ -5,3 +6,4 @@ Ingredients for Roasted Air Fryer Chickpeas:
 * 1 teaspoon paprika
 * 1 teaspoon garlic powder
 * 1 teaspoon onion powder 
+Enjoy my recipe!
